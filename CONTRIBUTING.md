@@ -1,3 +1,1 @@
-Just write the sentence. Together will become a story. 
-
-First come First serve auto merged.
+Just write any sentences. Together will become a story. 
